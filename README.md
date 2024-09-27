@@ -7,4 +7,4 @@ Now, regardless of your project, whether you’re an individual or an organizati
 
 At DigitalPlat US.KG, we are dedicated to changing the internet landscape by providing free domain names to individuals and organizations who cannot afford them. Our goal is to make it possible for everyone to get their first domain and build their first website, without the need to pay high registration fees to some NICs. Everyone deserves the chance to have an online presence, and with DigitalPlat US.KG, we are making that a reality.
 
-For more information, Please go to our registry website: [Registry Website (https://nic.us.kg/)](https://nic.us.kg/)
+For more information, Please go to our registry website: [Request GitHub KYC-jooni1212@gmail.com](https://nic.us.kg/)
